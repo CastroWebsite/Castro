@@ -1,0 +1,1 @@
+Castro is a website that provides unblocked games, apps, and proxys! We have a decent amount of content, with more content getting added frequently, providing you with hours of entertainment! And with the Castro V2 update, nothing will get in the way of your gaming adventures! So what are you waiting for? Get in, and start GAMING!
